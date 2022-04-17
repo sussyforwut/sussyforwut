@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @sussyforwut
+- I'm intrested in FNF mods and coding! (and maybe other things in the future... who knows?)
+- You can collab with me by messaging on COLLAB.md. (I just joined GitHub so the COLLAB.md would be out soon!)
+- i forgor 💀
