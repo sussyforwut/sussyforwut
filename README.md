@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sussyforwut
-- I'm intrested in FNF mods and coding! (and maybe other things in the future... who knows?)
+- I'm intrested in GD stuff, and arras private servers!
 - You can collab with me by starring on the repository with COLLAB.md. (Just check my profile, look for the repository with the COLLAB.md.)
 - i forgor 💀
